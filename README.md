@@ -1,4 +1,4 @@
-### Hi there 👋 I am Shri Prakash Jayasawal
+### Hi 👋 I am Shri Prakash Jayasawal
 
 
 # About me
